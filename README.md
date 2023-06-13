@@ -1,0 +1,4 @@
+- i run dh com
+- 👀 I’m interested in Learning LuaU
+- 🌱 I’m currently learning LuaU, Lua Python
+- 📫 How to reach me ... aks#2212, Kenny Mccormick#1149
